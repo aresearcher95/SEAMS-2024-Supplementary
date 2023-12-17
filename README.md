@@ -1,4 +1,4 @@
-# SEAMS-2024-Supplementary
+# SEAMS-2024-Supplementary (anonymously uploaded)
 
 ## Includes:
 
